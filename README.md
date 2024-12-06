@@ -1,6 +1,6 @@
 # Spunky
 
-Spunky is a fun and engaging online game. Explore the exciting world of Spunky and discover unique challenges and creative possibilities. Play [Spunky](https://write.as/spunky-game)
+Spunky is a fun and engaging online game. Explore the exciting world of Spunky and discover unique challenges and creative possibilities. Play [Spunky write as](https://write.as/spunky-game)
 
 
 ---
@@ -17,7 +17,7 @@ Spunky is a fun and engaging online game. Explore the exciting world of Spunky a
 
 ## What is Spunky? <a name="what-is-spunky"></a>
 
-Spunky is a dynamic online game offering an engaging and entertaining experience. For related experiences, also check out [Esprunki](https://write.as/spunky-game/esprunki) and [Sprunki](https://write.as/spunky-game/sprunki).  You can play [Spunky Game](https://write.as/spunky-game/spunky-game) now.
+Spunky is a dynamic online game offering an engaging and entertaining experience. For related experiences, also check out [Esprunki write as](https://write.as/spunky-game/esprunki) and [Sprunki write as](https://write.as/spunky-game/sprunki).  You can play [Spunky Game write as](https://write.as/spunky-game/spunky-game) now.
 
 
 ---
